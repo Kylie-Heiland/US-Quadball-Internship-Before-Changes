@@ -1,0 +1,1 @@
+During my internship at US Quadball, I was responsible for redesigning their website. The few before and after screenshots provided illustrate the key updates and improvements, highlighting enhancements in design, layout, and overall user experience. 
